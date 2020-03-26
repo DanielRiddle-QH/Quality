@@ -1,1 +1,1 @@
-Guten Morgen
+Guten Morgen!
